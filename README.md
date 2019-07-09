@@ -1,1 +1,1 @@
-# horizondesign.github.io
+# myhomedesign.github.io
